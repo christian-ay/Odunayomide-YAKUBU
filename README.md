@@ -2,7 +2,7 @@
 - 👀 I’m interested in data science and AI
 - 🌱 I’m currently exploring DeepLearning, NLP and CV. 
 - 💞️ I’m looking to collaborate on technology related topics and innovation 
-- 📫 How to reach me via this LinkedIn link: www.linkedin.com/in/odunayomide-yak-703b32259
+- 📫 How to reach me via this LinkedIn link: Odunayomide Yaku u[#www.linkedin.com/in/odunayomide-yak-703b32259]
 - 😄 Pronouns: He/ Him
 - ⚡ Fun fact: 1% of daily increase forms great achievement if consistent.
 
